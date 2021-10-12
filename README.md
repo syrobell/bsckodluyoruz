@@ -1,0 +1,2 @@
+# bsckodluyoruz
+Bölüm Sonu Çalışması
